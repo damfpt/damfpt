@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @damfpt
+- 👀 I’m interested in anime
+- 🌱 I’m currently learning game dev
